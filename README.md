@@ -1,0 +1,1 @@
+Até o momento estou conseguindo acompanhar bem as instruções e conteúdos dos vídeos. Estou muito empolgada e tentando organizar da melhor forma o tempo destinado aos estudos dessa jornada, para não perder nenhuma atividade e nem aulas.
